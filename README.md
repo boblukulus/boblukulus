@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @boblukulus
 - 👀 I’m interested in Cars (Electric and Combustion)
-- 📫 How to reach me via iMessage or just call
+- 📫 Via E-Mail (boblukulus@outlook.com)
 - 😄 Pronouns: He/Him
 
 <!---
